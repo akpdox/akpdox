@@ -12,7 +12,7 @@
 
 __Anime :__ **blue lock**, **haikyuu**, **Tokyo revengers**, demon slayer, sk8 the infinity, jujutsu kaisen, **arwan high school host club**, mashle, **dadadan**, **vash the stampede**, dialov (++)
 
-__Serie :__ **squid game**, Alice in borderland, **all of us are dead**, **weak hero class 1**, **strangers from hell**, the killer paradox, saw (++)
+__Serie :__ **squid game**, Alice in borderland, **all of us are dead**, **weak hero class 1**, **strangers from hell**, a killer paradox, saw (++)
 
 __Games :__ phighting!, cookie run kingdom, genshin, honkai star, **fnaf (all)**, franbow, **little misfortune**, **Sally face**, **danganronpa**, mouth washing (++)
 
