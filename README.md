@@ -14,7 +14,7 @@ __Anime :__ **blue lock**, **haikyuu**, **Tokyo revengers**, demon slayer, Narut
 
 __Serie :__ **squid game**, Alice in borderland, **all of us are dead**, **weak hero class 1**, **strangers from hell**, a killer paradox, saw (++)
 
-__Games :__ phighting!, cookie run kingdom, genshin, honkai star, **fnaf (all)**, franbow, **little misfortune**, **Sally face**, **danganronpa**, mouth washing (++)
+__Games :__ phighting!, cookie run kingdom, genshin, honkai star, **fnaf (all)**, franbow, **little misfortune**, **Sally face**, **danganronpa**, sonic, mouth washing (++)
 
 __Others :__ **manhuas**, **19days**, windbreaker (the manhua), **creepypasta**, don't hug me I'm scared, SpongeBob, Gorillaz, Homestuck, **invader zim**, alien stage, **big horror fan** (++)
 
