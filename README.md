@@ -3,12 +3,12 @@
 <p align="center">
   <img src="https://github.com/user-attachments/assets/44723d43-6cde-46aa-88ae-f840b7c0ca7b" alt="akpdox's custom image"/></p>
 
-<h3 align="center"> $${\color{pink}⟡ 　　﹒  　THANK \space YOU \space FOR \space THE \space FOLLOW \space !　　◞}$$ </h3>
+<h3 align="center"> ⟡ 　　﹒  　THANK  YOU FOR THE FOLLOW !　　◞ </h3>
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/e0ac90e9-fc5a-44a8-bd63-c51933f080c8" alt="akpdox's custom image"/></p>
 
-<h3 align="center"> $${\color{pink}﹒　𓊆†𓊇　⏖　MY \space INTERESTS　｡　　﹗}$$ </h3>
+<h3 align="center"> ﹒　𓊆†𓊇　⏖　MY INTERESTS　｡　　! </h3>
 
 __Anime :__ **blue lock**, **haikyuu**, **Tokyo revengers**, demon slayer, Naruto, sk8 the infinity, jujutsu kaisen, **arwan high school host club**, mashle, **dadadan**, **vash the stampede**, dialov (++)
 
