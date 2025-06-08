@@ -21,12 +21,21 @@ __Others :__ **manhuas**, **19days**, windbreaker (the manhua), **creepypasta**,
 <h3 align="center"> ⟡ 　　﹒  　ABOUT ME !　　◞ </h3>
 
 If you reading this, call me zane I'm an adult so keep in mind if you're -14 i prefer if you don't interact with me unless friends already IF YOU SHARE THE SAME INTERESTS AS ME IM BEGGING YOU TO INT I'm very friendly i swear that i don't bite 
+
 i also match energy so treat me the way you want me to treat you, i also have very bad insomnia so i don't mean to ignore you on purpose but most likely forgot or think that i already resounded to you (I'm sorry about it) alsi please be very patient with me, English is not my first language so i might go quiet because its most likely im trying to understand you or doesn't know how to reply 
+
 my love language is being rude so if you're sensible or dislike this just tell me to stop, same goes with jokes, i do make those kms kys and nsfw jokes so tell me to stop if that bother you (again)
+
 im very passionate about my interests and mostly things that not many people know/talk about, ask me about one of the series i watched and ill go on for HOURS 
+
 also don't vent to me, I'm horrible at comforting uhm i can only afford listening but i can try my best to advice you 
+
 if you're one of my exes dni at all and do expect me to hide you instantly, I don't enjoy forcing myself to like someone i already hated 
+
 basic dni, minors unless alreadt friends, no to flirting but you may compliment me, always w2i no matter what (im did system so if you happen to see "introj" in the name that's my headmate, respect their interaction state) 
+
 i can be very awkward at first because i never really know how to start conversation so say hi to me and I'll say hi back (unless im off tab) 
+
 i really love my friends and partner, if you have any problem with any of them respectfully get the fuck out of my sight.
+
 and if you reach till here thank you for reading all that i really appreciate it!!1! ^_^
