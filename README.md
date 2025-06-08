@@ -12,11 +12,11 @@
 
 __Anime :__ **blue lock**, **haikyuu**, **Tokyo revengers**, demon slayer, Naruto, sk8 the infinity, jujutsu kaisen, **arwan high school host club**, mashle, **dadadan**, **vash the stampede**, dialov (++)
 
-__Serie :__ **squid game**, Alice in borderland, **all of us are dead**, **weak hero class 1**, **strangers from hell**, a killer paradox, marble hornets, saw (++)
+__Serie :__ **squid game**, Alice in borderland, **all of us are dead**, **weak hero class 1 + class 2**, **strangers from hell**, a killer paradox, marble hornets, saw (++)
 
 __Games :__ phighting!, cookie run kingdom, genshin, honkai star, **fnaf (all)**, franbow, **little misfortune**, **Sally face**, **danganronpa**, **Shipwrecked 64**, sonic, mouth washing, Friday the 13th (++)
 
-__Others :__ **manhuas**, **19days**, windbreaker (the manhua), **creepypasta**, don't hug me I'm scared, SpongeBob, Gorillaz, Homestuck, **invader zim**, alien stage, **big horror fan** (++)
+__Others :__ **manhuas**, **19days**, **record of ragnarok**,  windbreaker (the manhua), **creepypasta**, don't hug me I'm scared, SpongeBob, Gorillaz, Homestuck, **invader zim**, alien stage, **big horror fan** (++)
 
 <h3 align="center"> ⟡ 　　﹒  　ABOUT ME !　　◞ </h3>
 
