@@ -22,7 +22,7 @@ __Others :__ **manhuas**, **19days**, windbreaker (the manhua), **creepypasta**,
 
 If you reading this, call me zane I'm an adult so keep in mind if you're -14 i prefer if you don't interact with me unless friends already IF YOU SHARE THE SAME INTERESTS AS ME IM BEGGING YOU TO INT mostly when it comes to series and movies PLEeezseee.................I'm very friendly i swear that i don't bite 
 
-i also match energy so treat me the way you want me to treat you, i also have very bad insomnia + memory as a goldfish so i don't mean to ignore you on purpose but most likely forgot or think that i already resounded to you (I'm sorry about it) also please be very patient with me, English is not my first language so i might go quiet because its most likely im trying to understand you or doesn't know how to reply nothing personal 
+i also match energy so treat me the way you want me to treat you, i also have very bad insomnia + memory as a goldfish so i don't mean to ignore you on purpose but most likely forgot or think that i already responded to you (I'm sorry about it) also please be very patient with me, English is not my first language so i might go quiet because its most likely im trying to understand you or doesn't know how to reply nothing personal 
 
 my love language is being rude so if you're sensible or dislike this just tell me to stop, same goes with jokes, i do make those kms kys and nsfw jokes so tell me to stop if that bother you (again)
 
