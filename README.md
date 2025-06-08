@@ -38,4 +38,6 @@ i can be very awkward at first because i never really know how to start conversa
 
 i really love my friends and partner, if you have any problem with any of them respectfully get the fuck out of my sight.
 
+ALSO DO NOT COPY OR TAKE INSPO EVEN COLOR PICK BRUH ILL RECOGNIZE THE SKIN SOONER OR LATER you can always ask if you can take inspo, you might find me with diffrent styles so if any if them caught your attention just ask i won't bite your head off (even if i don't see your taking inspo w/o asking i have friends to tell me about you bffr)
+
 and if you reach till here thank you for reading all that i really appreciate it!!1! ^_^
