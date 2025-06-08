@@ -6,7 +6,7 @@
 <h3 align="center"> ⟡ 　　﹒  　THANK  YOU FOR THE FOLLOW !　　◞ </h3>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/e0ac90e9-fc5a-44a8-bd63-c51933f080c8" alt="akpdox's custom image"/></p>
+  <img src="https://media.discordapp.net/attachments/1063886064445571103/1381268551268171868/IMG_20250608_144749.jpg?ex=6846e615&is=68459495&hm=f38eea61e4c8407b54dc642d4f18e95e3b1b09278304d72799d1674ab7637274&=&format=webp" alt="akpdox's custom image"/></p>
 
 <h3 align="center"> ﹒　𓊆†𓊇　⏖　MY INTERESTS　｡　　! </h3>
 
