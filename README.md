@@ -1,7 +1,7 @@
 <!-- level 1: simple bio and stats -->
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/44723d43-6cde-46aa-88ae-f840b7c0ca7b" alt="akpdox's custom image"/></p>
+  <img src="https://media.discordapp.net/attachments/1063886064445571103/1381264488451543061/2b5fd543e42a419cbe29715266e82bf6.jpg?ex=6846e24c&is=684590cc&hm=3619f2af12e50afd8601d65ca0edeaf3b76c33b7ae8350363f78a1c5e0fdfe93&=&format=webp" alt="akpdox's custom image"/></p>
 
 <h3 align="center"> ⟡ 　　﹒  　THANK  YOU FOR THE FOLLOW !　　◞ </h3>
 
