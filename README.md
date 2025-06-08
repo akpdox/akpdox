@@ -10,13 +10,13 @@
 
 <h3 align="center"> ﹒　𓊆†𓊇　⏖　MY INTERESTS　｡　　! </h3>
 
-__Anime :__ **blue lock**, **haikyuu**, **Tokyo revengers**, demon slayer, Naruto, sk8 the infinity, jujutsu kaisen, **arwan high school host club**, mashle, **dadadan**, **vash the stampede**, dialov (++)
+__Anime :__ **blue lock**, **haikyuu**, **Tokyo revengers**, demon slayer, **record of ragnarok**, Naruto, sk8 the infinity, jujutsu kaisen, **arwan high school host club**, mashle, **dadadan**, **vash the stampede/trigun**, dialov (++)
 
 __Serie :__ **squid game**, Alice in borderland, **all of us are dead**, **weak hero class 1 + class 2**, **strangers from hell**, a killer paradox, marble hornets, saw (++)
 
 __Games :__ phighting!, cookie run kingdom, genshin, honkai star, **fnaf (all)**, franbow, **little misfortune**, **Sally face**, **danganronpa**, **Shipwrecked 64**, sonic, mouth washing, Friday the 13th (++)
 
-__Others :__ **manhuas**, **19days**, **record of ragnarok**,  windbreaker (the manhua), **creepypasta**, don't hug me I'm scared, SpongeBob, Gorillaz, Homestuck, **invader zim**, alien stage, **big horror fan** (++)
+__Others :__ **manhuas**, **19days**, windbreaker (the manhua), **creepypasta**, don't hug me I'm scared, SpongeBob, Gorillaz, Homestuck, **invader zim**, alien stage, **big horror fan** (++)
 
 <h3 align="center"> ⟡ 　　﹒  　ABOUT ME !　　◞ </h3>
 
@@ -32,7 +32,7 @@ also don't vent to me, I'm horrible at comforting uhm i can only afford listenin
 
 if you're one of my exes dni at all and do expect me to hide you instantly, I don't enjoy forcing myself to like someone i already hated 
 
-basic dni, minors unless alreadt friends, no to flirting but you may compliment me, always w2i no matter what (im did system so if you happen to see "introj" in the name that's my headmate, respect their interaction state) 
+basic dni, minors unless ALREADY friends, no to flirting but you may compliment me, THOSE jjk fans are also dni, dandy world please get out of my sight, always w2i no matter what (im did system so if you happen to see "introj" in the name that's my headmate, respect their interaction state) 
 
 i can be very awkward at first because i never really know how to start conversation so say hi to me and I'll say hi back (unless im off tab) 
 
