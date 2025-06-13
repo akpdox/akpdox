@@ -20,11 +20,15 @@ __Others :__ **manhuas**, **19days**, windbreaker (the manhua), **creepypasta**,
 
 <h3 align="center"> ⟡ 　　﹒  　ABOUT ME !　　◞ </h3>
 
-If you reading this, call me zane I'm an adult so keep in mind if you're -14 i prefer if you don't interact with me unless friends already IF YOU SHARE THE SAME INTERESTS AS ME IM BEGGING YOU TO INT mostly when it comes to series and movies PLEeezseee.................I'm very friendly i swear that i don't bite 
+If you reading this, call me zane I'm an adult so keep in mind if you're -14 i prefer if you don't interact with me unless friends already IF YOU SHARE THE SAME INTERESTS AS ME IM BEGGING YOU TO INT mostly when it comes to series and movies PLEeezseee.................I'm very friendly i swear that i don't bite
+
+I'm super fun to talk to if you get to know me better, at the start i can be shy but i warm up so easily and would actually talk back and forth when i have a normal conversation and a good topic to talk about!!
+
+i use caps a lot to show my excitment and i don't use nor need tone tags, if you in need to them and we happen to talk warn me to use them!
 
 i also match energy so treat me the way you want me to treat you, i also have very bad insomnia + memory as a goldfish so i don't mean to ignore you on purpose but most likely forgot or think that i already responded to you (I'm sorry about it) also please be very patient with me, English is not my first language so i might go quiet because its most likely im trying to understand you or doesn't know how to reply nothing personal 
 
-my love language is being rude/mean so if you're sensible or dislike this just tell me to stop, same goes with jokes, i do make those kms kys and nsfw jokes so tell me to stop if that bother you (again)
+my love language is being rude/mean so if you're sensible or dislike this just tell me to stop, same goes with jokes, i do make those kms kys and nsfw jokes so tell me to stop if that bother you (again) i usually don't make them at all until i know the person is fine with it so this not much of a concern
 
 im very passionate about my interests and mostly things that not many people know/talk about, ask me about one of the series i watched and ill go on for HOURS 
 
@@ -32,11 +36,13 @@ also don't vent to me, I'm horrible at comforting uhm i can only afford listenin
 
 if you're one of my exes dni at all and do expect me to hide you instantly, I don't enjoy forcing myself to like someone i already hated 
 
-basic dni, minors unless ALREADY friends, no to flirting but you may compliment me, THOSE jjk fans are also dni, dandy world please get out of my sight, forsaken are on thin ice, always w2i no matter what (im did system so if you happen to see "introj" in the name that's my headmate, respect their interaction state) 
+basic dni.. proship transphob etc, minors unless ALREADY friends (you can interact if you're pretty normal, if i sense something off ill hide you..), your mom jokes you not funny, no to flirting (keep in mind I'm in healthy relationship) but you may compliment me, THOSE jjk and south park fans are also dni, dandy world please get out of my sight, forsaken are on thin ice, always w2i no matter what (im did system so if you happen to see "introj" in the name that's my headmate, respect their interaction state) 
 
 i can be very awkward at first because i never really know how to start conversation so say hi to me and I'll say hi back (unless im off tab) 
 
-i really love my friends and partner, if you have any problem with any of them respectfully get the fuck out of my sight.
+i really love my friends and partner, if you have any problem with any of them respectfully get the fuck out of my sight. if you trying to start drama in pixel game I wouldn't take you serious and expect yourself to be hidden.. I'm afk almost all the time but if i happen to catch you trying something ill simply hide you ermm just be normal person
+
+if you have problem with me just whisper me please im always up to know what i might have done wrong so i can fix it and avoid from repeating the same mistake just dont go on straight up attacking me for nothing ^^
 
 ALSO DO NOT COPY OR TAKE INSPO EVEN COLOR PICK BRUH ILL RECOGNIZE THE SKIN SOONER OR LATER you can always ask if you can take inspo, you might find me with diffrent styles so if any of them caught your attention just ask i won't bite your head off (even if i don't see your taking inspo w/o asking i have friends to tell me about you bffr)
 
