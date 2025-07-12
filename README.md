@@ -1,6 +1,9 @@
 <!-- level 1: simple bio and stats -->
 
-hey, you must be very aware of what you did was very wrong to copy someone's else's skin and hide them once they confront you, if you're that scared to be talked to and legit hid us when we talked it out to you, if you cant handle the results then you better delete the skin and start being original. you genuinely pissing me off, if you willing to communicate like a normal person and unhide us you'll find us always at the squid game area, if you gonna keep cowarding around and hide behind your friends ill genuinely warn everyone about you being skin thief because others trying hard to creat a style just to be snatched by color picking is not cool at all. we could even make you a skin instead straight up stealing, you know who you are.
+<h3 align="center"> ⟡ 　　﹒  　WALL OF SHAME.　　◞ </h3>
+
+BE AWARE OF THIS PERSON, GH IN THE SS!
+hey, you must be very aware of what you did was very wrong to copy someone's else's skin and hide them once they confront you, if you're that scared to be talked to and legit hid us when we talked it out to you, if you cant handle the results then you better delete the skin and start being original. you genuinely pissing me off, if you willing to communicate like a normal person and unhide us you'll find us always at the squid game area, if you gonna keep cowarding around and hide behind your friends ill genuinely warn everyone about you being skin thief because others trying hard to creat a style just to be snatched by color picking is not cool at all. we could even make you a skin instead straight up stealing, you know who you are. 
 
 <p align="center"> <img src=https://cdn.discordapp.com/attachments/1393568773566496851/1393568926683893801/Screenshot_20250712_142434_Pony_Town.jpg?ex=6873a5b3&is=68725433&hm=5897dac97a1f2d87db266f4d072219539908e430e8003edd2747169ef1df8d43&"alt="akpdox's custom image"/></p>
 
