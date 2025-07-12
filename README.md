@@ -5,9 +5,8 @@
 BE AWARE OF THIS PERSON, GH IN THE SS!
 hey, you must be very aware of what you did was very wrong to copy someone's else's skin and hide them once they confront you, if you're that scared to be talked to and legit hid us when we talked it out to you, if you cant handle the results then you better delete the skin and start being original. you genuinely pissing me off, if you willing to communicate like a normal person and unhide us you'll find us always at the squid game area, if you gonna keep cowarding around and hide behind your friends ill genuinely warn everyone about you being skin thief because others trying hard to creat a style just to be snatched by color picking is not cool at all. we could even make you a skin instead straight up stealing, you know who you are. 
 
-<p align="center"> <img src=https://media.discordapp.net/attachments/1332853237430222938/1393617150400532500/image.png?ex=6873d29c&is=6872811c&hm=5973ca25db14f286e8b171e5a879bfb8467b37796a1d42747f7edd14505d09e1&=&format=webp&quality=lossless"alt="akpdox's custom image"/></p>
+<p align="center"> <img src=https://cdn.discordapp.com/attachments/1393568773566496851/1393568926683893801/Screenshot_20250712_142434_Pony_Town.jpg?ex=6873a5b3&is=68725433&hm=5897dac97a1f2d87db266f4d072219539908e430e8003edd2747169ef1df8d43&"alt="akpdox's custom image"/></p>
 
-<p align="center"> <img src=https://media.discordapp.net/attachments/1332853237430222938/1393617208940429433/image.png?ex=6873d2aa&is=6872812a&hm=49f48a7c278b4f2920e5c1ce53c5a9ed98fbfda4a10dba77b95758e1318c140a&=&format=webp&quality=lossless"alt="akpdox's custom image"/></p>
 
 <p align="center">
   <img src="https://media.discordapp.net/attachments/1063886064445571103/1381264488451543061/2b5fd543e42a419cbe29715266e82bf6.jpg?ex=6846e24c&is=684590cc&hm=3619f2af12e50afd8601d65ca0edeaf3b76c33b7ae8350363f78a1c5e0fdfe93&=&format=webp" alt="akpdox's custom image"/></p>
