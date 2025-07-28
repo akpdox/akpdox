@@ -4,13 +4,9 @@
 
 <p align="center"> <img src=https://i.postimg.cc/90RBJpVC/2.webp"alt="akpdox's custom image"/></p>
 
-
-<p align="center"> <img src=https://i.postimg.cc/TwP0Wx4y/1.webp"alt="akpdox's custom image"/></p>
-
 <h3 align="center"> ⟡ 　　﹒  　THANK  YOU FOR THE FOLLOW !　　◞ </h3>
 
-<p align="center">
-  <img src=" "akpdox's custom image"/></p>
+<p align="center"> <img src=https://i.postimg.cc/TwP0Wx4y/1.webp"alt="akpdox's custom image"/></p>
 
 <h3 align="center"> ﹒　𓊆†𓊇　⏖　MY INTERESTS　｡　　! </h3>
 
