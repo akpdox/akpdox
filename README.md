@@ -2,16 +2,15 @@
 
 <h3 align="center"> ⟡ 　　﹒  　IF YOU SEE MY SKINS IN PINTEREST I DO NOT POST THEM SO PLEASE DO NOT COPY.　　◞ </h3>
 
-<p align="center"> <img src=https://cdn.discordapp.com/attachments/1393568773566496851/1393568926683893801/Screenshot_20250712_142434_Pony_Town.jpg?ex=6873a5b3&is=68725433&hm=5897dac97a1f2d87db266f4d072219539908e430e8003edd2747169ef1df8d43&"alt="akpdox's custom image"/></p>
+<p align="center"> <img src=https://i.postimg.cc/90RBJpVC/2.webp"alt="akpdox's custom image"/></p>
 
 
-<p align="center">
-  <img src="https://media.discordapp.net/attachments/1063886064445571103/1381264488451543061/2b5fd543e42a419cbe29715266e82bf6.jpg?ex=6846e24c&is=684590cc&hm=3619f2af12e50afd8601d65ca0edeaf3b76c33b7ae8350363f78a1c5e0fdfe93&=&format=webp" alt="akpdox's custom image"/></p>
+<p align="center"> <img src=https://i.postimg.cc/TwP0Wx4y/1.webp"alt="akpdox's custom image"/></p>
 
 <h3 align="center"> ⟡ 　　﹒  　THANK  YOU FOR THE FOLLOW !　　◞ </h3>
 
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1063886064445571103/1381268551268171868/IMG_20250608_144749.jpg?ex=6846e615&is=68459495&hm=f38eea61e4c8407b54dc642d4f18e95e3b1b09278304d72799d1674ab7637274&=&format=webp" alt="akpdox's custom image"/></p>
+  <img src=" "akpdox's custom image"/></p>
 
 <h3 align="center"> ﹒　𓊆†𓊇　⏖　MY INTERESTS　｡　　! </h3>
 
