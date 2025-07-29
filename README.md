@@ -10,7 +10,7 @@
 
 <h3 align="center"> ﹒　𓊆†𓊇　⏖　MY INTERESTS　｡　　! </h3>
 
-__Anime :__ **blue lock**, **haikyuu**, **Tokyo revengers**, demon slayer, **record of ragnarok**, Naruto, sk8 the infinity, jujutsu kaisen, **arwan high school host club**, mashle, **dadadan**, **vash the stampede/trigun**, dialov (++)
+__Anime :__ **blue lock**, **haikyuu**, **Tokyo revengers**, demon slayer, **record of ragnarok**, Naruto, sk8 the infinity, jujutsu kaisen, **orwan high school host club**, mashle, **dadadan**, **vash the stampede/trigun**, dialov (++)
 
 __Serie+movies :__ **squid game ALL SEASONS**, Alice in borderland, **all of us are dead**, **weak hero class 1 + class 2**, **strangers from hell**, a killer paradox, marble hornets, saw, **bad and crazy**, good boy, **forgotten (movie highly suggested, the korean one)**, **wall to wall**, **brave citizen** (++)
 
