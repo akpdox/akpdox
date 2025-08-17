@@ -12,9 +12,9 @@
 
 __Anime :__ **blue lock**, **haikyuu**, **Tokyo revengers**, demon slayer, **record of ragnarok**, Naruto, sk8 the infinity, jujutsu kaisen, **orwan high school host club**, mashle, **dadadan**, **vash the stampede/trigun**, dialov (++)
 
-__Serie+movies :__ **squid game ALL SEASONS**, Alice in borderland, **all of us are dead**, **weak hero class 1 + class 2**, **strangers from hell**, a killer paradox, marble hornets, saw, **bad and crazy**, good boy, **forgotten (movie highly suggested, the korean one)**, **wall to wall**, **brave citizen** (++)
+__Serie+movies :__ **squid game ALL SEASONS**, Alice in borderland, **all of us are dead**, **weak hero class 1 + class 2**, **strangers from hell**, a killer paradox, marble hornets, saw, **bad and crazy**, good boy, **forgotten (movie highly suggested, the korean one)**, **wall to wall**, **brave citizen**, **officer black belt**, paranlemal acfivity (++)
 
-__Games :__ phighting!, cookie run kingdom, genshin, honkai star, **fnaf (all)**, franbow, **little misfortune**, **Sally face**, **danganronpa**, **Shipwrecked 64**, sonic, mouth washing, Friday the 13th (++)
+__Games :__ **phighting!**, cookie run kingdom, genshin, honkai star, **fnaf (all)**, franbow, **little misfortune**, **Sally face**, **danganronpa**, **Shipwrecked 64**, sonic, mouth washing, Friday the 13th (++)
 
 __Others :__ **19days**, windbreaker (the manhua), **creepypasta**, don't hug me I'm scared, SpongeBob, Gorillaz, Homestuck, **invader zim**, alien stage, **big horror fan** (++)
 
