@@ -2,11 +2,11 @@
 
 <h3 align="center"> ⟡ 　　﹒  　IF YOU SEE MY SKINS IN PINTEREST I DO NOT POST THEM SO PLEASE DO NOT COPY.　　◞ </h3>
 
-<p align="center"> <img src=https://i.postimg.cc/90RBJpVC/2.webp"alt="akpdox's custom image"/></p>
+<p align="center"> <img src=https://cdn.discordapp.com/attachments/1063886064445571103/1423364622898954365/d1b3c959ea5fe15ddb3799ff1012dfb5.jpg?ex=68e00b1a&is=68deb99a&hm=04858acc0b584c63c208894b0aa92e7af9bd726529d92da2d997ebbadf8b6bc7&"alt="akpdox's custom image"/></p>
 
 <h3 align="center"> ⟡ 　　﹒  　THANK  YOU FOR THE FOLLOW !　　◞ </h3>
 
-<p align="center"> <img src=https://i.postimg.cc/TwP0Wx4y/1.webp"alt="akpdox's custom image"/></p>
+<p align="center"> <img src=https://cdn.discordapp.com/attachments/1063886064445571103/1423364623536754788/79e1d83e2322b53d38f2670f046f1f33.jpg?ex=68e00b1b&is=68deb99b&hm=a25d7f549e872fc9d1e4acd43b4804a3f6a0aaaf94dc4c62abae34caee947b22&"alt="akpdox's custom image"/></p>
 
 <h3 align="center"> ﹒　𓊆†𓊇　⏖　MY INTERESTS　｡　　! </h3>
 
