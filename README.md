@@ -2,11 +2,11 @@
 
 <h3 align="center"> ⟡ 　　﹒  　IF YOU SEE MY SKINS IN PINTEREST I DO NOT POST THEM SO PLEASE DO NOT COPY.　　◞ </h3>
 
-<p align="center"> <img src=https://cdn.discordapp.com/attachments/1063886064445571103/1426299263754960977/d1b3c959ea5fe15ddb3799ff1012dfb5.jpg?ex=68eab833&is=68e966b3&hm=3bcf9b6a9a794d46d93dea9d6be7ba25b98925c5bd966ad9c22dbbe75655f5e0&"alt="akpdox's custom image"/></p>
+<p align="center"> <img src=https://media.discordapp.net/attachments/1063886064445571103/1426299263754960977/d1b3c959ea5fe15ddb3799ff1012dfb5.jpg?ex=6916e273&is=691590f3&hm=efd39e5f2cf0cc029d9f9a11e3aaa82670edfe924465dd8100791e553b724fca&=&format=webp"alt="akpdox's custom image"/></p>
 
 <h3 align="center"> ⟡ 　　﹒  　THANK  YOU FOR THE FOLLOW !　　◞ </h3>
 
-<p align="center"> <img src=https://cdn.discordapp.com/attachments/1063886064445571103/1426299264065077308/79e1d83e2322b53d38f2670f046f1f33.jpg?ex=68eab833&is=68e966b3&hm=8ec30d49717a35decca50412d12e8c0a9d7b87da8b74b13d08f797d24212571f&"alt="akpdox's custom image"/></p>
+<p align="center"> <img src=https://media.discordapp.net/attachments/1063886064445571103/1426299264065077308/79e1d83e2322b53d38f2670f046f1f33.jpg?ex=6916e273&is=691590f3&hm=9e292a0691454f9f948586986ff27e56fde5855b3872e9c9d07b49247e112b94&=&format=webp&width=415&height=431"alt="akpdox's custom image"/></p>
 
 <h3 align="center"> ﹒　𓊆†𓊇　⏖　MY INTERESTS　｡　　! </h3>
 
