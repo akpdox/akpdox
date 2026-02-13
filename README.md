@@ -24,7 +24,7 @@ __Others :__ **19days**, windbreaker (the manhua), **creepypasta**, don't hug me
 
 <h3 align="center"> ⟡ 　　﹒  　ABOUT ME !　　◞ </h3>
 
-If you reading this, call me NAGITO >w<!! zane is stickly for friends only, I'm an adult so keep in mind if you're -14 i prefer if you don't interact with me unless friends already IF YOU SHARE THE SAME INTERESTS AS ME IM BEGGING YOU TO INT mostly when it comes to series and movies PLEeezseee.................I'm very friendly i swear that i don't bite
+If you reading this, call me NAGITO >w<!! zane is strictly for friends only, I'm an adult so keep in mind if you're -14 i prefer if you don't interact with me unless friends already IF YOU SHARE THE SAME INTERESTS AS ME IM BEGGING YOU TO INT mostly when it comes to series and movies PLEeezseee.................I'm very friendly i swear that i don't bite
 
 I'm super fun to talk to if you get to know me better, at the start i can be shy but i warm up so easily and would actually talk back and forth when i have a normal conversation and a good topic to talk about!!
 
