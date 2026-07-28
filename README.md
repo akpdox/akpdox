@@ -3,13 +3,13 @@
 <h3 align="center"> ⟡ 　　﹒  　IF YOU SEE MY SKINS IN PINTEREST I DO NOT POST THEM SO PLEASE DO NOT COPY.　　◞ </h3>
 
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1063886064445571103/1499186528084164749/IMG_20260430_000933.png?ex=69f3e1c1&is=69f29041&hm=c017cc57cf2fdebd426b5c1f3b1d83558ea3a69ac613a788c88dc3a81ea84e98&=&format=webp&quality=lossless&width=689&height=431" alt="apkdox's custom image"/>
+  <img src="https://media.discordapp.net/attachments/1063886064445571103/1531629337554718922/795d3de302195d1c371c4c42aa15dae5.webp.jpg?ex=6a69e87a&is=6a6896fa&hm=df6fad064f3fc906a779208865599eec64cf5dfb278f25bed645c9ab2a80d1de&=&format=webp&width=609&height=431" alt="apkdox's custom image"/>
 </p>
 
 <h3 align="center"> ⟡ 　　﹒  　THANK  YOU FOR THE FOLLOW !　　◞ </h3>
 
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1063886064445571103/1499186527706808470/IMG_20260430_001004.png?ex=69f3e1c1&is=69f29041&hm=d504a43fd9f0e2cbd1c8729ede223d780e81736c0dd6f43145b2ac3f01511030&=&format=webp&quality=lossless&width=732&height=431" alt="apkdox's custom image"/>
+  <img src="https://media.discordapp.net/attachments/1063886064445571103/1531629337873354892/f88caed350114f0e9f394cf698f2dae9.webp.jpg?ex=6a69e87a&is=6a6896fa&hm=6c2be47934934314d90612b47db79922b855b8dda936e8dc868191c8800ec341&=&format=webp&width=654&height=431" alt="apkdox's custom image"/>
 </p>
 
 <h3 align="center"> ﹒　𓊆†𓊇　⏖　MY INTERESTS　｡　　! </h3>
